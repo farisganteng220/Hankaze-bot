@@ -1,5 +1,5 @@
 //Sc JunaBot-Md By Juna Selebew
-// No Enc Pm asep jb🥰 Murmer:v
+// No Enc Pm +62 856-0079-3871 Murmer:v
 //Credit Haruka-Md By Zeeoneofc Recode By Juna
 //Base Ori Zeeoneofc
 
